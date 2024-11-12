@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @oliwiabies1
+- 👀 I’m interested in art, reading, social media
+- 🌱 I’m currently learning spanish, python, design
+- 💞️ I’m looking to collaborate on uni projects
+- 📫 How to reach me email, social media, whatsapp
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: i have 4 cats and i'm obsessed with them
